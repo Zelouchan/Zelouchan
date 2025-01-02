@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Cookies
 - 📫 How to reach me throw a pigeon my way...
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: Neuro-Spcy af.
+- ⚡ Fun fact: Neuro-Spicy af.
 
 <!---
 Zelouchan/Zelouchan is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
